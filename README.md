@@ -10,5 +10,5 @@ Meu nome é Tálison Silva
   
 talisonyuri15@gmail.com
 
+![](https://media.tenor.com/mCiM7CmGGI4AAAAM/naruto.gif)
 
-https://media.tenor.com/mCiM7CmGGI4AAAAM/naruto.gif
