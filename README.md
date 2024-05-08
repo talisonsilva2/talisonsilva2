@@ -7,4 +7,5 @@ Meu nome é Tálison Silva
 - Utilizo esse espaço para a minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### você entrar em contato comigo 📫
-  talisonyuri15@gmail.com
+  
+talisonyuro15@gmail.com
