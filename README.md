@@ -8,4 +8,4 @@ Meu nome é Tálison Silva
 
 ### você entrar em contato comigo 📫
   
-talisonyuro15@gmail.com
+talisonyuri15@gmail.com
